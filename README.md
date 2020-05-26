@@ -22,3 +22,4 @@ I never realized that you were a fruad,
 Until I was down and you would pretend to pick me up.
 At first it was hard noticing that my cold aching body 
 has never left the ground. 
+You being my hero was an illusion 
